@@ -1,2 +1,2 @@
 # intro
-pretty much my intro haha
+hi im brandon i use **HE/HIM ONLY**. i really like homestuck, eltingivlle, twd, roblox/minecraft args, object shows, pretty much any fandom please just ask me! im a minor (14 almost 15) and willing to talk toanyone as long as you arent 20+. i love my friends and im really bad at makign friends because i get too scared and like mever talk to them but dont b afraid to reach out haha..... this is mostly for my ponytown, so c+h is okay!!! but if you are 20+ or 12- please dont try to add me on anywhere else. my user is @pesterchummy on pretty much everything
