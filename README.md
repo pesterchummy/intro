@@ -3,3 +3,5 @@ hi im brandon i use **HE/HIM ONLY**. i really like homestuck, eltingivlle, twd, 
 
 for people who see me on ponytown
 i mostly jsut afk, so if im not replying or seem to be not paying attention im afking. sometimes i go on with my friends but its msotly just a background thing i enjoy doing </3
+
+i am a big bill dickey/dave strider/dirk strider/equius/golfball yume (a lot i know) and i treat them like my real partners kind of I LVOE THEM!!!!!!!!! 🦄🦄🦄🦄
