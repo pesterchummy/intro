@@ -6,3 +6,4 @@ i mostly jsut afk, so if im not replying or seem to be not paying attention im a
 
 i am a big bill dickey/dave strider/dirk strider/equius/golfball yume (a lot i know)!!!!!!!!!!! 🦄🦄🦄🦄 been yuming bill since since 6.3.25 and i love him sooo dearly the others ive been with for like. years but im too lazy to enter the dates here. other than my yumes im aroace and gay haha yeah #wokelosershutupbrandon
 
+i am in a ponytown reigment called PAW!! if you are interested in joining pelase whisper to me while im playing and you cam give me ur discord and il send you an invite.. sometimes im in uniform near docks or near our base!!!!!
